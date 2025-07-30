@@ -1,1 +1,1 @@
-hi hlo this is jagan mohan reddy k class cr.
+hi hlo this is jagan mohan reddy k college cr.
